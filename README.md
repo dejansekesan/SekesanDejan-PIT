@@ -1,1 +1,1 @@
-# SekesanDejan-PIT
+# Sekešan Dejan ŠC "Nikola Tesla" III-2
